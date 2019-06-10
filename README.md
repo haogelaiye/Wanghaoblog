@@ -1,0 +1,2 @@
+# Wanghaoblog
+彩票
